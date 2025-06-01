@@ -1,0 +1,2 @@
+# dount_world
+IT'S MY HOMEWORK! DON'T GET IT AS A SERIOUS PROJECT!!!
